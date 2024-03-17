@@ -8,8 +8,12 @@ Who are your "role models" from the first three generations? From which books do
 
 These is a beginning of your self-revision and thinking serious about your Islam because if you see so many sects and deviations why would you be convinced that you are at the straight path?
 With Allah's help, in the future at this blog we will post as many info as possible. Post will consist of sayings of Salaf translated to English. If you know Arabic then you already posses the main tool for learning and debunking all lies and deviation attributed to belief of first generations. Some people maybe don't know much about works of Salaf but they didn't accept any kufr postulates from contemporary sects, but unfortunately many learn deviations and lies promoted by groups which they follow and socialize with so they are stripped from the basic sources and real knowledge.  
+
 If and when you find out the truth, don't let Shaytan trick you from accepting Islam, correcting your deviations or lack of knowledge. Don't let him play with your emotions about your self, friends and family. Allah 'azza wa jall guides whom He wills, so don't stay in the darkness just because people you love or you are used to are blind and def. Follow the truth where ever you are, and with whom ever you are. Make du'a to Allah and prepare for death. No one can help you at the Judgement Day except Allah, so turn to Him and ask Him to guide others.  
+
 First book which should uncover many issues and lies is "Khalq af'al al 'ibad" lil al Bukhary: [Download/View book here...](https://www.waqfeya.com/book.php?bid=2780)  
 If you know Arabic read the book and translate quotes as much as you can, helping other people to learn.  
+
 If you don't know Arabic, then search for translated narrations of imams of Sunnah, ask people to translate, pay them if you are capable, learn Arabic and check out our blog for future posts. Make a lot of du'a to Allah subhanahu wa ta'ala, ask Him to guide you and that He shows you the truth in everything.  
+
 I ask Allah 'azza wa jall to help people understand, learn and to liberate themselves from worshiping groups, personalities and emotions. I ask Him to help people in searching the truth, and to help this blog reach as many people as possible, and to save all Muslims from fitnah. Amin.
