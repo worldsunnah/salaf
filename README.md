@@ -15,8 +15,10 @@ With Allah's help, in the future at this blog we will post as many info as possi
 
 If and when you find out the truth, don't let Shaytan trick you from accepting Islam, correcting your deviations or lack of knowledge. Don't let him play with your emotions about your self, friends and family. Allah 'azza wa jall guides whom He wills, so don't stay in the darkness just because people you love or you are used to are blind and def. Follow the truth where ever you are, and with whom ever you are. Make du'a to Allah and prepare for death. No one can help you at the Judgement Day except Allah, so turn to Him and ask Him to guide others.  
 
-First book which should uncover many issues and lies is "Khalq af'al al 'ibad" lil al Bukhary:  
-[Download/View book here...](https://www.waqfeya.com/book.php?bid=2780)  
+First book which should uncover many issues and lies is "Khalq af'al al 'ibad" lil al Bukhari:  
+[Download/View book here...](https://archive.org/details/KhalqAfaalAlEbaadBukhariAlFuhaedMatn)
+
+WARNING! Read only the original text. Any comments by later Jahmis is not the book of imam al Bukhari.
 
 If you know Arabic read the book and translate quotes as much as you can, helping other people to learn.  
 
